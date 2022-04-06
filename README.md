@@ -1,0 +1,1 @@
+# mbti-compatibility-table
